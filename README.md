@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @JeremyAtMedidata
+- 📫 How to reach me at jlewis@mdsol.com or on Medidata Slack by Jeremy Lewis (jlewis)
